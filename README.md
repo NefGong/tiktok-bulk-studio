@@ -37,3 +37,5 @@ These Terms of Service may be updated as the application develops.
 ## 8. Contact
 
 For questions about these terms, contact the application developer through the contact information provided with the application.
+[tiktokpB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp.txt](https://github.com/user-attachments/files/33865256/tiktokpB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp.txt)
+tiktok-developers-site-verification=pB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp
