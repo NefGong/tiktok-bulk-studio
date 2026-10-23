@@ -1,3 +1,4 @@
+tiktok-developers-site-verification=pB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp[tiktokpB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp (1).txt](https://github.com/user-attachments/files/33865385/tiktokpB5TS5AJYRqI6jdbxij1cJ4c7bn9ovQp.1.txt)
 # Terms of Service — TikTok Bulk Studio AI
 
 **Last updated: October 23, 2026**
